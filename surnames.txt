@@ -1,3 +1,0 @@
-Cristea
-Valerii
-Russo
